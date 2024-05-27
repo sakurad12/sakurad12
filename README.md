@@ -9,8 +9,6 @@ Meu nome é
   
 ### Você entrar em contato comigo 🦘
 
-davyson.ailva@escola.pr.gov.br
-
 
 ![](https://media1.tenor.com/m/2pOWUd6rJCQAAAAC/hpw-alucard.gif)
 
