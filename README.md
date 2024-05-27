@@ -9,7 +9,4 @@ Meu nome é
   
 ### Você entrar em contato comigo 🦘
 
-
-![](https://media1.tenor.com/m/2pOWUd6rJCQAAAAC/hpw-alucard.gif)
-
 ![](https://media1.tenor.com/m/4Y4Ag8gEalQAAAAd/alucard-hellsing.gif)
